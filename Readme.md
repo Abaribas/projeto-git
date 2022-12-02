@@ -1,1 +1,1 @@
-Pink Floyd é melhor qu Beatles
+Pink Floyd é claramente melhor que Beatles
